@@ -39,6 +39,8 @@
 ![image](https://github.com/777388/Microsoft_Cryptofile_Currency/assets/96343159/963f5c25-7cf2-4ad7-880b-691256ca1dfc)
 ![image](https://github.com/777388/Microsoft_Cryptofile_Currency/assets/96343159/1b11d641-bfb2-4d89-9261-d74721e6ffed)
 ![image](https://github.com/777388/Microsoft_Cryptofile_Currency/assets/96343159/3031ef3d-0609-49a5-a34e-f8a4b964af98)
+![Screenshot 2024-03-23 005106](https://github.com/777388/Microsoft_Cryptofile_Currency/assets/96343159/e3a80f2a-4658-41fa-84d9-7b9d602c5343)
+![image](https://github.com/777388/Microsoft_Cryptofile_Currency/assets/96343159/4dfa34b1-8fde-4bd9-a924-d30b666122d2)
 
 
 
