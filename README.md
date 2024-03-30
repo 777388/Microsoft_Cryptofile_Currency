@@ -31,3 +31,16 @@
 ![Screenshot 2024-03-04 131109](https://github.com/777388/Microsoft_Cryptofile_Currency/assets/96343159/3e73a1f5-909a-4904-84c4-74feef14a951)
 ![Screenshot 2024-03-01 151336](https://github.com/777388/Microsoft_Cryptofile_Currency/assets/96343159/b2731059-b9d5-4744-8488-d97ef0a22e28)
 ![Screenshot 2024-02-26 152318](https://github.com/777388/Microsoft_Cryptofile_Currency/assets/96343159/d7e226a8-dca9-44ba-9b4c-8cd8468addc5)
+![image](https://github.com/777388/Microsoft_Cryptofile_Currency/assets/96343159/8613e0ce-4d76-40ec-bca5-b205be3e784b)
+![image](https://github.com/777388/Microsoft_Cryptofile_Currency/assets/96343159/bed6d519-73e4-49cf-a7a4-3e6ee5e169c3)
+![image](https://github.com/777388/Microsoft_Cryptofile_Currency/assets/96343159/02e3b256-babe-4e6d-bf98-ac12d6d63984)
+![image](https://github.com/777388/Microsoft_Cryptofile_Currency/assets/96343159/a61d751c-af19-479c-81f6-635e99ae02e4)
+![image](https://github.com/777388/Microsoft_Cryptofile_Currency/assets/96343159/7e5ad226-f0d1-48a4-be28-a95b01eed368)
+![image](https://github.com/777388/Microsoft_Cryptofile_Currency/assets/96343159/963f5c25-7cf2-4ad7-880b-691256ca1dfc)
+![image](https://github.com/777388/Microsoft_Cryptofile_Currency/assets/96343159/1b11d641-bfb2-4d89-9261-d74721e6ffed)
+![image](https://github.com/777388/Microsoft_Cryptofile_Currency/assets/96343159/3031ef3d-0609-49a5-a34e-f8a4b964af98)
+
+
+
+
+
